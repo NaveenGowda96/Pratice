@@ -1,1 +1,0 @@
-There was a man who is called the emperor of the world and his name is Monster
